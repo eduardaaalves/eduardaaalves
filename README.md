@@ -1,6 +1,6 @@
 ### Boas vindas ao meu perfil
 
-Meu nome é Eduarda Alves 
+Meu nome é Eduarda Alves💜 
 
 - Estou estudando na [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
