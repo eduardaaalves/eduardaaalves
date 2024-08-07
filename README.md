@@ -8,3 +8,5 @@ Meu nome é Eduarda Alves💜
 
 ### Você pode entrar em contato comigo :
 00001086191705sp@al.educacao.sp.gov.br
+
+![](https://upload.wikimedia.org/wikipedia/commons/c/cd/Pivot_Wave.gif)
