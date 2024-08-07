@@ -9,4 +9,4 @@ Meu nome é Eduarda Alves💜
 ### Você pode entrar em contato comigo :
 00001086191705sp@al.educacao.sp.gov.br
 
-![](https://images.app.goo.gl/69793JjxU46JREi76)
+![](https://pa1.aminoapps.com/6271/f7268c1ce88e131e93826e21ff8de2530d89817b_hq.gif)
